@@ -1,2 +1,5 @@
-## REPL Game
-This adventure keeps you on your toes as you try to save "Candy" your beloved kitten from hordes of zombies.  This REPL game makes for a good quick adventure.
+## The MOST REPL Game EVEEEEEEEEERRRRRRRRRR!!!!!!
+DO YOU WANT TO PLAY REPL!!!!!
+DO YOU????!!!!!
+
+WELL THEN YOU NEED TO PLAY THIS GAME BECAUSE IT IS THE MOST REPLEST GAME IN THE HISTORY OF EVER!!!!!
